@@ -6,4 +6,4 @@ I am a [Google Search Central Silver Product Expert](https://support.google.com/
 
 📚Currently, I'm learning Python and NLP and on my way to transition into a more technical SEO.
 
-You can connect with on [LinkedIn](https://www.linkedin.com/in/aubreyyung/) or check out my website at [https://aubreyyung.com](https://aubreyyung.com/)
+You can connect with me on [LinkedIn](https://www.linkedin.com/in/aubreyyung/) or check out my website at [https://aubreyyung.com](https://aubreyyung.com/)
