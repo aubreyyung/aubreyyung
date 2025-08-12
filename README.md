@@ -1,6 +1,6 @@
 ## About Me
 
-I am Aubrey, an SEO Manager with 5+ years of B2B and B2C marketing experience. I have worked with clients across industries, including FinTech and SaaS.
+I am Aubrey, an SEO Manager with 6+ years of B2B and B2C marketing experience. I have worked with clients across industries, including FinTech and SaaS.
 
 As a [Google Search Central Product Expert](https://support.google.com/profile/247347691) and certified Product Marketer, I specialize in SEO content strategy, international SEO, entity SEO, SERP analysis, and schema markup.
 
